@@ -223,4 +223,4 @@
 1. Nov 8 - [man’s search for meaning](http://amzn.to/2iqqVoD)
 1. Nov 9 - [founder’s mentality](http://amzn.to/2zOXZ15)
 1. Nov 13 - [shoe dog](http://amzn.to/2yUi3hz)
-1. Nov 18 - [🌟🌟 Unscripted](http://amzn.to/2yUCE5f) (Even if you only read the first 2 chapters, or listen for 30 minutes, this will be worth it. I guarantee it.) -- 17 hours of absolutely epic audiob
+1. Nov 18 - [🌟🌟 Unscripted](http://amzn.to/2yUCE5f) (Even if you only read the first 2 chapters, or listen for 30 minutes, this will be worth it. I guarantee it.) -- 17 hours of absolutely epic audiobook
