@@ -14,7 +14,7 @@
 ### Check back every few weeks to see the new books (the bottom of the list) :)
 
 
-### Feel free to suggest ones to me: ogorek.alex@gmail.com
+### Feel free to suggest ones to me: [ogorek.alex@gmail.com](mailto:ogorek.alex@gmail.com)
 
 <br>
 
