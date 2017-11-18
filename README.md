@@ -8,11 +8,11 @@
 
 
 ### Also: 🌟🌟 are considered… well… the “11 out of 10” so to speak. Should you see any of these on the list, read them immediately. If you already have, I’m sure you agree with my opinion.
-
+<br>
 
 ### This list also gets updated as I read books… which means this is a fluid / living document.
 ### Check back every few weeks to see the new books (the bottom of the list) :)
-
+<br>
 
 ### Feel free to suggest ones to me: [ogorek.alex@gmail.com](mailto:ogorek.alex@gmail.com)
 
@@ -223,4 +223,4 @@
 1. Nov 8 - [man’s search for meaning](http://amzn.to/2iqqVoD)
 1. Nov 9 - [founder’s mentality](http://amzn.to/2zOXZ15)
 1. Nov 13 - [shoe dog](http://amzn.to/2yUi3hz)
-1. Nov 18 - [🌟🌟 Unscripted](http://amzn.to/2yUCE5f) (Even if you only read the first 2 chapters, or listen for 30 minutes, this will be worth it. I guarantee it.) -- 17 hours of absolutely epic audiobook
+1. Nov 20 - [🌟🌟 Unscripted](http://amzn.to/2yUCE5f) (Even if you only read the first 2 chapters, or listen for 30 minutes, this will be worth it. I guarantee it.) -- 17 hours of absolutely epic audiobook
