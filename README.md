@@ -22,7 +22,7 @@
 ## Goal: Read/Listen to 50 books for the year (aka, about 1 book per week on average). Actual: 70
 ### These are the books I read for 2015. They are in order starting around 20-something. Before that, the list was not created so the order is unknown.
 
-1. [Flow](https://www.google.com)
+1. [Flow](http://amzn.to/2yQ6JCN)
 1. [Winners dream](https://www.google.com)
 1. [Everything store](https://www.google.com)
 1. [Crossing the chasm]()
@@ -183,8 +183,8 @@
 1. Nov 2nd - [close that sale]()
 1. Nov 4th - [🌟sell or be sold]()
 1. Nov 4th - [no one understands you and what to do about it]()
-1. Nov 5th - [Be Obsessed or Be Average (yes, again. It’s that good, but not going to count]()
-1. it the 2nd time)]()
+  <br>
+  Nov 5th - [Be Obsessed or Be Average (yes, again. It’s that good, but not going to count it the 2nd time)]()
 1. Nov 7th - [Alibaba]()
 1. Nov 9th - [🌟 The Startup J curve]()
 1. Nov 14th - [how to fail at almost everything and still win big]()
