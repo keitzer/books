@@ -226,3 +226,5 @@
 1. Nov 20 - [🌟🌟 Unscripted](http://amzn.to/2yUCE5f) (Even if you only read the first 2 chapters, or listen for 30 minutes, this will be worth it. I guarantee it.) -- 17 hours of absolutely epic audiobook
 1. Nov 21 - [🌟 How to get and stay motivated](http://amzn.to/2z81zT4)
 1. Nov 22 - [Unfu\*k Yourself](http://amzn.to/2zYfMF7)
+1. Nov 22 - [The Magnolia Story](http://amzn.to/2BlwZqD)
+1. Nov 24 - [Wealth cant wait](http://amzn.to/2A5jsVW)
