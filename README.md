@@ -228,3 +228,4 @@
 1. Nov 22 - [Unfu\*k Yourself](http://amzn.to/2zYfMF7)
 1. Nov 22 - [The Magnolia Story](http://amzn.to/2BlwZqD)
 1. Nov 24 - [Wealth cant wait](http://amzn.to/2A5jsVW)
+1. Nov 27 - [🌟 Serve No Master](http://amzn.to/2A98IFY)
