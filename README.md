@@ -232,3 +232,4 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Nov 27 - [🌟 Serve No Master](http://amzn.to/2A98IFY)
 1. Nov 28 - [5 Second Rule](http://amzn.to/2AEPGbF)
 1. Dec 1 - [Get your shit together](http://amzn.to/2jFFjZY)
+1. Dec 6 - [Breaking Orbit](http://amzn.to/2isEdRd)
