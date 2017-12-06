@@ -1,6 +1,7 @@
 # Alex Ogorek's Book List
 
 ## All books in this list are linked to Amazon for easy purchase with just 1 click (so you don’t have to search for the title yourself) :)
+Disclaimer: This also means that any link clicked on this page is assumed to be an affiliate link, meaning I get a revenue share if you purchase the book. Thank you.
 
 <br>
 
