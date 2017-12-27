@@ -235,3 +235,4 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Dec 3 - [20K A Day: How to launch more books](http://amzn.to/2AVDx1x)
 1. Dec 6 - [Breaking Orbit](http://amzn.to/2isEdRd)
 1. Dec 12 - [🌟 Ca$hvertising](http://amzn.to/2yZqRSq)
+1. Dec 27 - [Rich 20 Something](http://amzn.to/2DmAtcw)
