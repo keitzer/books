@@ -236,3 +236,9 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Dec 6 - [Breaking Orbit](http://amzn.to/2isEdRd)
 1. Dec 12 - [🌟 Ca$hvertising](http://amzn.to/2yZqRSq)
 1. Dec 27 - [Rich 20 Something](http://amzn.to/2DmAtcw)
+
+
+#2018
+## Goal: Get back to reading 50-100 books in a year
+1. Jan 6 - [The Vanishing American Adult](http://amzn.to/2mmuUUm)
+1. Jan 11 - [It Didn't Start With You](http://amzn.to/2mlQpF3)
