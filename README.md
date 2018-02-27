@@ -184,7 +184,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Nov 2nd - [close that sale](http://amzn.to/2zOZ5fd)
 1. Nov 4th - [🌟 Sell or be sold](http://amzn.to/2yRofqy)
 1. Nov 4th - [no one understands you and what to do about it](http://amzn.to/2zQs5kU)
-  <br>
+  <br />
   Nov 5th - [Be Obsessed or Be Average](http://amzn.to/2zNnwtR) (yes, again. It’s that good, but not going to count it the 2nd time)]()
 1. Nov 7th - [Alibaba](http://amzn.to/2zOwnv6)
 1. Nov 9th - [🌟 The Startup J curve](http://amzn.to/2yRMZyI)
@@ -201,7 +201,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Dec 21st - [🌟 Entrepreneur’s blueprint to massive success](http://amzn.to/2zN8nbD)
 1. Dec 28th - [🌟 Small data](http://amzn.to/2AVFVT4)
 
-#2017
+# 2017
 ## I don’t have a goal, but I’ll mark down which books I read here.
 
 1. Early Jan - [A life in parts](http://amzn.to/2zMt5bI)
@@ -238,7 +238,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Dec 27 - [Rich 20 Something](http://amzn.to/2DmAtcw)
 
 
-#2018
+# 2018
 ## Goal: Get back to reading 50-100 books in a year
 1. Jan 6 - [The Vanishing American Adult](http://amzn.to/2mmuUUm)
 1. Jan 11 - [It Didn't Start With You](http://amzn.to/2mlQpF3)
