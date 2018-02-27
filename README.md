@@ -242,3 +242,6 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 ## Goal: Get back to reading 50-100 books in a year
 1. Jan 6 - [The Vanishing American Adult](http://amzn.to/2mmuUUm)
 1. Jan 11 - [It Didn't Start With You](http://amzn.to/2mlQpF3)
+1. Feb 7 - [🌟 Principles: Life and Work](http://amzn.to/2FA00Bl)
+1. Feb 22 -  [NeuroLogic](http://amzn.to/2GKbOQL)
+1. Feb 27 - [🌟 Set for Life](http://amzn.to/2CMToMM)
