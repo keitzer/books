@@ -248,3 +248,4 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Mar 8 - [🌟 Whiplash](http://amzn.to/2FsYVKR)
 1. Mar 13 - [🌟 Building a StoryBrand](http://amzn.to/2FCEXNG)
 1. Mar 16 - [🌟 Barking up the wrong tree](http://amzn.to/2FNyz65)
+1. Mar 20 - [🌟 Everybody Lies](http://amzn.to/2prBr2G)
