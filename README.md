@@ -253,3 +253,6 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Mar 24 - [🌟 1-Page Marketing Plan](https://amzn.to/2DWpaYe)
 1. Mar 26 - [Daily Rituals](https://amzn.to/2I7sanj)
 1. Mar 28 - [🌟 Dont Bullshit Yourself](https://amzn.to/2pMjYBn)
+1. Apr 7 - [🌟 Book Yourself Solid]()
+1. Apr 7 - [Better Than Beach Money]()
+1. Apr 7 - [What If It Does Work Out]()
