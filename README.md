@@ -15,7 +15,11 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 ### Check back every few weeks to see the new books (the bottom of the list) :)
 <br>
 
-### Feel free to suggest ones to me: [ogorek.alex@gmail.com](mailto:ogorek.alex@gmail.com)
+### Feel free to suggest ones to me: [alex@alexogorek.com](mailto:alex@alexogorek.com)
+
+<br>
+
+### If you want to get your first few books from Audible, follow this link: [Audible Free Trial 2 Free Audiobooks](https://www.amazon.com/Audible-Free-Trial-Digital-Membership/dp/B00NB86OYE/?ref_=assoc_tag_ph_1485906643682&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=compass076-20&linkId=ca1d9d231d4d6bfbfcef100ac602d8ec)
 
 <br>
 
