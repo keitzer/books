@@ -262,3 +262,4 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Apr 7 - [What If It Does Work Out](https://amzn.to/2JEiKBn)
 1. Apr 10 - [Hardcore (c)loser](https://amzn.to/2GXGB0X)
 1. Apr 10 - [Investing for Beginners by Walter Wayne](https://amzn.to/2JClM9b)
+1. Apr 12 - [Make: Bootstrappers handbook](https://makebook.io/)
