@@ -264,6 +264,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Apr 10 - [Investing for Beginners by Walter Wayne](https://amzn.to/2JClM9b)
 1. Apr 12 - [Make: Bootstrappers handbook](https://makebook.io/)
 1. Apr 17 - [🌟 Never Lose A Customer Again](https://amzn.to/2qEHykR)
+<br />
 Re-reading some good books in prep for a product launch
 1. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
 1. Apr 19 - [1-Page Marketing Plan](https://amzn.to/2GWl6cW)
