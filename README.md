@@ -250,7 +250,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Feb 22 -  [NeuroLogic](https://amzn.to/2v89aDB)
 1. Feb 27 - [🌟 Set for Life](https://amzn.to/2qrhwBb)
 1. Mar 8 - [🌟 Whiplash](https://amzn.to/2qtI2cC)
-1. Mar 13 - [🌟 Building a StoryBrand](https://amzn.to/2qviAmT)
+1. Mar 13 - [🌟 Building a Story Brand](https://amzn.to/2qviAmT)
 1. Mar 16 - [🌟 Barking up the wrong tree](https://amzn.to/2v6zs9b)
 1. Mar 20 - [🌟 Everybody Lies](https://amzn.to/2EGxfAV)
 1. Mar 22 - [Capital Gains](https://amzn.to/2GVMYSs)
@@ -268,3 +268,4 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 Re-reading some good books in prep for a product launch
 1. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
 1. Apr 19 - [1-Page Marketing Plan](https://amzn.to/2GWl6cW)
+1. Apr 20 - [Building a Story Brand](https://amzn.to/2qviAmT)
