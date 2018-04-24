@@ -269,3 +269,4 @@ Re-reading some good books in prep for a product launch
 1. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
 1. Apr 19 - [1-Page Marketing Plan](https://amzn.to/2GWl6cW)
 1. Apr 20 - [Building a Story Brand](https://amzn.to/2qviAmT)
+1. Apr 24 - [Ca$hvertising](https://amzn.to/2GUmktp)
