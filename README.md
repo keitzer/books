@@ -190,6 +190,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Nov 4 - [No one understands you and what to do about it](https://amzn.to/2vcmpTG)
   <br />
   Nov 5 - [Be Obsessed or Be Average](https://amzn.to/2qsokhm) (yes, again. It’s that good, but not going to count it the 2nd time)]()
+  <br />
 1. Nov 7 - [Alibaba](https://amzn.to/2EGa5uv)
 1. Nov 9 - [🌟 The Startup J curve](https://amzn.to/2GUZphg)
 1. Nov 14 - [How to fail at almost everything and still win big](https://amzn.to/2qsSMYD)
@@ -266,7 +267,9 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Apr 17 - [🌟 Never Lose A Customer Again](https://amzn.to/2qEHykR)
 <br />
 Re-reading some good books in prep for a product launch
+<br />
 1. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
 1. Apr 19 - [1-Page Marketing Plan](https://amzn.to/2GWl6cW)
 1. Apr 20 - [Building a Story Brand](https://amzn.to/2qviAmT)
 1. Apr 24 - [Ca$hvertising](https://amzn.to/2GUmktp)
+1. Apr 25 - [🌟 Conversion Code](https://amzn.to/2JtOCYv)
