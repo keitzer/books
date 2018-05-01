@@ -273,3 +273,4 @@ Re-reading some good books in prep for a product launch
 1. Apr 20 - [Building a Story Brand](https://amzn.to/2qviAmT)
 1. Apr 24 - [Ca$hvertising](https://amzn.to/2GUmktp)
 1. Apr 25 - [🌟 Conversion Code](https://amzn.to/2JtOCYv)
+1. May 1 - [Unscripted](https://amzn.to/2GUb0Jr)
