@@ -275,3 +275,4 @@ Re-reading some good books in prep for a product launch
 1. Apr 25 - [🌟 Conversion Code](https://amzn.to/2JtOCYv)
 1. May 1 - [Unscripted](https://amzn.to/2GUb0Jr)
 1. May 2 - [Entrepreneur’s blueprint to massive success](https://amzn.to/2quRbBs)
+1. May 2 - [🌟 Just Sell The Damn Thing](https://amzn.to/2HMMIpi)
