@@ -277,3 +277,7 @@ Re-reading some good books in prep for a product launch
 1. May 2 - [Entrepreneur’s blueprint to massive success](https://amzn.to/2quRbBs)
 1. May 2 - [🌟 Just Sell The Damn Thing](https://amzn.to/2HMMIpi)
 1. May 3 - [🌟 Profit First](https://amzn.to/2Ia2jyx)
+1. May 13 - [How To Turn Down A Billion Dollars](https://amzn.to/2GrXAn2)
+1. May 14 - [Crushing It!](https://amzn.to/2rQ9SQQ)
+1. May 15 - [When To Jump](https://amzn.to/2L9otzy)
+1. May 16 - [🌟 Stealing Fire](https://amzn.to/2Lc1WCo)
