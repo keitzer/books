@@ -282,3 +282,4 @@ Re-reading some good books in prep for a product launch
 1. May 15 - [When To Jump](https://amzn.to/2L9otzy)
 1. May 16 - [🌟 Stealing Fire](https://amzn.to/2Lc1WCo)
 1. May 22 - [🌟 All Marketers Are Liars](https://amzn.to/2s2iKUB)
+1. May 31 - [🌟 The Inevitable](https://amzn.to/2IZqdhq)
