@@ -283,3 +283,4 @@ Re-reading some good books in prep for a product launch
 1. May 16 - [🌟 Stealing Fire](https://amzn.to/2Lc1WCo)
 1. May 22 - [🌟 All Marketers Are Liars](https://amzn.to/2s2iKUB)
 1. May 31 - [🌟 The Inevitable](https://amzn.to/2IZqdhq)
+1. June 1 - [Presence](https://amzn.to/2JnVASg)
