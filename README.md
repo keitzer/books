@@ -287,3 +287,4 @@ Re-reading some good books in prep for a product launch
 1. June 7 - [🌟 When by Daniel Pink](https://amzn.to/2JhcDGl)
 1. June 15 - [🌟 Future Presence](https://amzn.to/2JFPZIa)
 1. June 21 - [Bad Blood](https://amzn.to/2K0u3Yp)
+1. June 23 - [Dawn of the new everything](https://amzn.to/2MT4XbC)
