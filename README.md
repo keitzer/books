@@ -289,3 +289,4 @@ Re-reading some good books in prep for a product launch
 1. June 21 - [Bad Blood](https://amzn.to/2K0u3Yp)
 1. June 23 - [Dawn of the new everything](https://amzn.to/2MT4XbC)
 1. June 27 - [Living with the monks](https://amzn.to/2tJ5Tax)
+1. July 2 - [🌟 The Fourth Transformation](https://amzn.to/2MGKhT6)
