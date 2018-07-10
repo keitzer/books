@@ -292,3 +292,4 @@ Re-reading some good books in prep for a product launch
 1. July 2 - [🌟 The Fourth Transformation](https://amzn.to/2MGKhT6)
 1. July 4 - [🌟 Ready Player One](https://amzn.to/2KNWzsB)
 1. July 5 - [Experience on demand](https://amzn.to/2KTMEBQ)
+1. July 10 - [What the future looks like](https://amzn.to/2NCbS9k)
