@@ -294,3 +294,4 @@ Re-reading some good books in prep for a product launch
 1. July 5 - [Experience on demand](https://amzn.to/2KTMEBQ)
 1. July 10 - [What the future looks like](https://amzn.to/2NCbS9k)
 1. July 12 - [🌟 The Pumpkin Plan](https://amzn.to/2LdnrCv)
+1. July 19 - [🌟 The Fourth Age](https://amzn.to/2uxNTAx)
