@@ -295,3 +295,4 @@ Re-reading some good books in prep for a product launch
 1. July 10 - [What the future looks like](https://amzn.to/2NCbS9k)
 1. July 12 - [🌟 The Pumpkin Plan](https://amzn.to/2LdnrCv)
 1. July 19 - [🌟 The Fourth Age](https://amzn.to/2uxNTAx)
+1. July 23 - [Defying Reality](https://amzn.to/2mFNdEQ)
