@@ -297,3 +297,4 @@ Re-reading some good books in prep for a product launch
 1. July 19 - [🌟 The Fourth Age](https://amzn.to/2uxNTAx)
 1. July 23 - [Defying Reality](https://amzn.to/2mFNdEQ)
 1. Aug 7 - [The Third Door](https://amzn.to/2KAUNtE)
+1. Aug 10 - [Million-Dollar, One-Person Business](https://amzn.to/2MGWoAb)
