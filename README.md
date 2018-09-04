@@ -299,3 +299,4 @@ Re-reading some good books in prep for a product launch
 1. Aug 7 - [The Third Door](https://amzn.to/2KAUNtE)
 1. Aug 10 - [Million-Dollar, One-Person Business](https://amzn.to/2MGWoAb)
 1. Aug 16 - [Thinking In Bets](https://amzn.to/2Ml2Uk4)
+1. Sept 4 - [Tell Me What You Want](https://amzn.to/2wKj0c8)
