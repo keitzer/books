@@ -300,3 +300,5 @@ Re-reading some good books in prep for a product launch
 1. Aug 10 - [Million-Dollar, One-Person Business](https://amzn.to/2MGWoAb)
 1. Aug 16 - [Thinking In Bets](https://amzn.to/2Ml2Uk4)
 1. Sept 4 - [Tell Me What You Want](https://amzn.to/2wKj0c8)
+1. Sept 6 - [5 Love Languages](https://amzn.to/2x3UaUL)
+1. Sept 10 - [5 Love Languages For Men](https://amzn.to/2x5eOUN) - Basically a "how to" for guys.
