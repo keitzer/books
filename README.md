@@ -301,4 +301,5 @@ Re-reading some good books in prep for a product launch
 1. Aug 16 - [Thinking In Bets](https://amzn.to/2Ml2Uk4)
 1. Sept 4 - [Tell Me What You Want](https://amzn.to/2wKj0c8)
 1. Sept 6 - [5 Love Languages](https://amzn.to/2x3UaUL)
-1. Sept 10 - [5 Love Languages For Men](https://amzn.to/2x5eOUN) - Basically a "how to" for guys.
+1. Sept 10 - [5 Love Languages For Men](https://amzn.to/2x5eOUN)
+1. Sept 17 - [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj) - An hour in, it was immediately one of my favorite books of all time. Written by a Navy SEAL. Absolute gold.
