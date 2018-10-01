@@ -174,7 +174,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 1. Oct 4 - [Moonwalking with Einstein](https://amzn.to/2HwwBc3)
 1. Oct 6 - [🌟 Secrets of Selling](https://amzn.to/2GXE1YP)
 1. Oct 7 - [the subtle art of not giving a fuck](https://amzn.to/2GXSZ1e)
-1. Oct 17 - [🌟🌟 Be obsessed or be average](https://amzn.to/2qsokhm)
+1. Oct 17 - [🌟🌟 Be obsessed or be average](https://amzn.to/2qsokhm) - Same auther as Millionaire Booklet, and read by the author. It's the motivation you were looking for when it comes to getting your shit together.
 1. Oct 18 - [Chasing daylight](https://amzn.to/2GUjFQr)
 1. Oct 21 - [10x rule](https://amzn.to/2GVA4Eb)
 1. Oct 24 - [Fanatical prospecting](https://amzn.to/2qphysC)
@@ -282,7 +282,7 @@ Re-reading some good books in prep for a product launch
 1. May 15 - [When To Jump](https://amzn.to/2L9otzy)
 1. May 16 - [🌟 Stealing Fire](https://amzn.to/2Lc1WCo)
 1. May 22 - [🌟 All Marketers Are Liars](https://amzn.to/2s2iKUB)
-1. May 31 - [🌟🌟 The Inevitable](https://amzn.to/2IZqdhq)
+1. May 31 - [🌟🌟 The Inevitable](https://amzn.to/2IZqdhq) - If you do nothing but follow these trends, you'll become a billionaire. 
 1. June 1 - [Presence](https://amzn.to/2JnVASg)
 1. June 7 - [🌟 When by Daniel Pink](https://amzn.to/2JhcDGl)
 1. June 15 - [🌟 Future Presence](https://amzn.to/2JFPZIa)
