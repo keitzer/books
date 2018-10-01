@@ -304,3 +304,4 @@ Re-reading some good books in prep for a product launch
 1. Sept 10 - [5 Love Languages For Men](https://amzn.to/2x5eOUN)
 1. Sept 17 - [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj) - An hour in, it was immediately one of my favorite books of all time. Written by a Navy SEAL. Absolute gold.
 1. Sept 27 - [Passive Income Ideas: 50 Ways To Make Money Online](https://amzn.to/2OjyWgl)
+1. Sept 29 - [Start Now. Get Perfect Later](https://amzn.to/2RfjuAn)
