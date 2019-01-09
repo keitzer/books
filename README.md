@@ -1,7 +1,6 @@
 # Alex Ogorek's Book List
 
-## All books in this list are linked to Amazon for easy purchase with just 1 click (so you don’t have to search for the title yourself) :)
-Disclaimer: This also means that any link clicked on this page is assumed to be an affiliate link, meaning I get a revenue share if you purchase the book. Thank you.
+## All books in this list are linked to Amazon for easy purchase with just 1 click (NOT affiliate links. Amazon shut down my account lol) :)
 
 <br>
 
@@ -244,7 +243,7 @@ Disclaimer: This also means that any link clicked on this page is assumed to be 
 
 
 # 2018
-## Goal: Get back to reading 50-100 books in a year
+## Goal: Get back to reading 50-100 books in a year. Actual: 57 (Stopped in late September)
 1. Jan 6 - [The Vanishing American Adult](https://amzn.to/2JFhca2)
 1. Jan 11 - [It Didn't Start With You](https://amzn.to/2v89hPx)
 1. Feb 7 - [🌟 Principles: Life and Work](https://amzn.to/2EHthbc)
@@ -305,3 +304,8 @@ Re-reading some good books in prep for a product launch
 1. Sept 17 - [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj) - An hour in, it was immediately one of my favorite books of all time. Written by a Navy SEAL. Absolute gold.
 1. Sept 27 - [Passive Income Ideas: 50 Ways To Make Money Online](https://amzn.to/2OjyWgl)
 1. Sept 29 - [Start Now. Get Perfect Later](https://amzn.to/2RfjuAn)
+
+# 2019
+## Goal: I'm doing at least 100 this year. Fact.
+
+1. Jan 7. [Bluefishing](https://www.amazon.com/Bluefishing-Art-Making-Things-Happen/dp/1501152513)
