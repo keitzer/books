@@ -309,3 +309,5 @@ Re-reading some good books in prep for a product launch
 ## Goal: I'm doing at least 100 this year. Fact.
 
 1. Jan 7. [Bluefishing](https://www.amazon.com/Bluefishing-Art-Making-Things-Happen/dp/1501152513)
+1. Jan 14. [Bad With Money](https://www.amazon.com/Bad-Money-Imperfect-Financial-Together/dp/1501176331)
+1. Jan 15. [The Financial Diet](https://www.amazon.com/Financial-Diet-Total-Beginners-Getting/dp/1250176166)
