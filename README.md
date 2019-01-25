@@ -312,3 +312,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 14. [Bad With Money](https://www.amazon.com/Bad-Money-Imperfect-Financial-Together/dp/1501176331)
 1. Jan 15. [The Financial Diet](https://www.amazon.com/Financial-Diet-Total-Beginners-Getting/dp/1250176166)
 1. Jan 22. [The Total Money Makeover](https://www.amazon.com/Total-Money-Makeover-Classic-Financial/dp/1595555277)
+1. Jan 24. [Rich Dad's Cashflow Quadrant](https://www.amazon.com/Rich-Dads-CASHFLOW-Quadrant-Financial/dp/1612680054)
