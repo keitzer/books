@@ -315,3 +315,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 24 [🌟Rich Dad's Cashflow Quadrant](https://www.amazon.com/Rich-Dads-CASHFLOW-Quadrant-Financial/dp/1612680054)
 1. Jan 25 [The Charisma Myth](https://www.amazon.com/Charisma-Myth-Science-Personal-Magnetism/dp/1591845947)
 1. Jan 29 [Everyday Millionaire](https://www.amazon.com/Everyday-Millionaires-Ordinary-Extraordinary-Wealth_and/dp/0977489523)
+1. Feb 3 [🌟 48 Laws of Power](https://www.amazon.com/48-Laws-Power-Robert-Greene/dp/0140280197)
