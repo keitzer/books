@@ -317,3 +317,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 29 [Everyday Millionaire](https://www.amazon.com/Everyday-Millionaires-Ordinary-Extraordinary-Wealth_and/dp/0977489523)
 1. Feb 3 [🌟 48 Laws of Power](https://www.amazon.com/48-Laws-Power-Robert-Greene/dp/0140280197)
 1. Feb 5 [🌟 Investing in Real Estate with No (and Low) Money Down](https://www.amazon.com/Book-Investing-Real-Estate-Money/dp/0990711714)
+1. Feb 7 [The Small Business Bible](https://www.amazon.com/Small-Business-Bible-Everything-Succeed/dp/1118135946)
