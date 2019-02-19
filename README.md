@@ -318,3 +318,4 @@ Re-reading some good books in prep for a product launch
 1. Feb 3 [🌟 48 Laws of Power](https://www.amazon.com/48-Laws-Power-Robert-Greene/dp/0140280197)
 1. Feb 5 [🌟 Investing in Real Estate with No (and Low) Money Down](https://www.amazon.com/Book-Investing-Real-Estate-Money/dp/0990711714)
 1. Feb 7 [The Small Business Bible](https://www.amazon.com/Small-Business-Bible-Everything-Succeed/dp/1118135946)
+1. Feb 18 [The Book On Rental Property Investing](https://www.amazon.com/Book-Rental-Property-Investing-Intelligent/dp/099071179X)
