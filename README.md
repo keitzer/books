@@ -321,3 +321,4 @@ Re-reading some good books in prep for a product launch
 1. Feb 18 [The Book On Rental Property Investing](https://www.amazon.com/Book-Rental-Property-Investing-Intelligent/dp/099071179X)
 1. Feb 20 [The Righteous Mind](https://www.amazon.com/Righteous-Mind-Divided-Politics-Religion/dp/0307377903)
 1. Mar 7 [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
+1. Mar 15 [Million Dollar Consulting](https://www.amazon.com/Million-Dollar-Consulting-Professionals-Practice/dp/1259588610)
