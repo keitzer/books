@@ -323,3 +323,4 @@ Re-reading some good books in prep for a product launch
 1. Mar 7 [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
 1. Mar 15 [Million Dollar Consulting](https://www.amazon.com/Million-Dollar-Consulting-Professionals-Practice/dp/1259588610)
 1. Mar 20 [The Richest Man In Town](https://www.amazon.com/Richest-Man-Town-Twelve-Commandments/dp/0446537837)
+1. April 30 [Learn Spanish with Paul Noble](https://www.audible.com/pd/B01D1VJS16) - Only got about 75% through it. Listened at "normal" speed instead of 2.0. But WOW this book is fucking good when it comes to learning Spanish.
