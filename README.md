@@ -325,3 +325,4 @@ Re-reading some good books in prep for a product launch
 1. Mar 20 [The Richest Man In Town](https://www.amazon.com/Richest-Man-Town-Twelve-Commandments/dp/0446537837)
 1. April 30 [Learn Spanish with Paul Noble](https://www.audible.com/pd/B01D1VJS16) - Only got about 75% through it. Listened at "normal" speed instead of 2.0. But WOW this book is fucking good when it comes to learning Spanish.
 1. May 9 [Human Errors](https://www.amazon.com/Human-Errors-Panorama-Glitches-Pointless/dp/1328974693)
+1. May 17 [Sales EQ](https://www.amazon.com/dp/1119312574)
