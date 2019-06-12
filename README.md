@@ -330,3 +330,4 @@ Re-reading some good books in prep for a product launch
 1. May 31 [Options Trading Simplified](http://a.co/cOv7paP)
 1. June 5 [I Will Teach You To Be Rich](http://a.co/a7OHgaD) <- Meh, TLDR: Index funds and automatic contributions
 1. June 7 [🌟 Sleep Smarter](http://a.co/erJKrUC)
+1. June 11 [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
