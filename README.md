@@ -332,3 +332,4 @@ Re-reading some good books in prep for a product launch
 1. June 7 [🌟 Sleep Smarter](http://a.co/erJKrUC)
 1. June 11 [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
 1. June 15 [The Code of Trust](http://a.co/4kiSqrU)
+1. June 19 [New Geography of Jobs](http://a.co/8hJXcoM)
