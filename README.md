@@ -333,5 +333,6 @@ Re-reading some good books in prep for a product launch
 1. June 11 [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
 1. June 15 [The Code of Trust](http://a.co/4kiSqrU)
 1. June 19 [New Geography of Jobs](http://a.co/8hJXcoM)
-1. June 21 [Dreamland](http://a.co/aD2wjAQ)
+1. June 21 [Dreamland](http://a.co/8VsbamT)
 1. June 30 [🌟 Why We Sleep](http://a.co/aD2wjAQ)
+1. July 5 [🌟 Inspired](http://a.co/2xq3p54)
