@@ -306,7 +306,7 @@ Re-reading some good books in prep for a product launch
 1. Sept 29 - [Start Now. Get Perfect Later](https://amzn.to/2RfjuAn)
 
 # 2019
-## Goal: I'm doing at least 100 this year. Fact.
+## Goal: I'm doing at least 50 this year. Fact.
 
 1. Jan 7 [Bluefishing](https://www.amazon.com/Bluefishing-Art-Making-Things-Happen/dp/1501152513)
 1. Jan 14 [Bad With Money](https://www.amazon.com/Bad-Money-Imperfect-Financial-Together/dp/1501176331)
