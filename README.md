@@ -337,3 +337,4 @@ Re-reading some good books in prep for a product launch
 1. June 30 [🌟 Why We Sleep](http://a.co/aD2wjAQ)
 1. July 5 [🌟 Inspired](http://a.co/2xq3p54)
 1. July 9 [The Lean Product Playbook](http://a.co/f7GO9Af)
+1. July 24 [🌟🌟 Skin in the game](http://a.co/iuJDB95)
