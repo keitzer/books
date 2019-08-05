@@ -339,3 +339,4 @@ Re-reading some good books in prep for a product launch
 1. July 9 [The Lean Product Playbook](http://a.co/f7GO9Af)
 1. July 24 [🌟🌟 Skin in the game](http://a.co/iuJDB95)
 1. July 28 [The ADHD Effect on Marriage](http://a.co/f3a8ndH)
+1. Aug 2 [The Two Income Trap](http://a.co/cmmGftT)
