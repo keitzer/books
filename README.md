@@ -341,3 +341,4 @@ Re-reading some good books in prep for a product launch
 1. July 28 [The ADHD Effect on Marriage](http://a.co/f3a8ndH)
 1. Aug 2 [The Two Income Trap](http://a.co/cmmGftT)
 1. Aug 7 [🌟 The Power of Moments](http://a.co/cMMUg08)
+1. Aug 14 [The Proximity Principle](http://a.co/2kfb9aw)
