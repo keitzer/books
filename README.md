@@ -342,3 +342,4 @@ Re-reading some good books in prep for a product launch
 1. Aug 2 [The Two Income Trap](http://a.co/cmmGftT)
 1. Aug 7 [🌟 The Power of Moments](http://a.co/cMMUg08)
 1. Aug 14 [The Proximity Principle](http://a.co/2kfb9aw)
+1. Aug 26 [🌟 Come As You Are](http://a.co/2KiDabq)
