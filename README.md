@@ -320,7 +320,7 @@ Re-reading some good books in prep for a product launch
 1. Feb 7 [The Small Business Bible](https://www.amazon.com/Small-Business-Bible-Everything-Succeed/dp/1118135946)
 1. Feb 18 [The Book On Rental Property Investing](https://www.amazon.com/Book-Rental-Property-Investing-Intelligent/dp/099071179X)
 1. Feb 20 [The Righteous Mind](https://www.amazon.com/Righteous-Mind-Divided-Politics-Religion/dp/0307377903)
-1. Mar 7 [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
+1. Mar 7 [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626) <- Honestly the only book on nutrition you'll ever need. ever.
 1. Mar 15 [Million Dollar Consulting](https://www.amazon.com/Million-Dollar-Consulting-Professionals-Practice/dp/1259588610)
 1. Mar 20 [The Richest Man In Town](https://www.amazon.com/Richest-Man-Town-Twelve-Commandments/dp/0446537837)
 1. April 30 [🌟 Learn Spanish with Paul Noble](https://www.audible.com/pd/B01D1VJS16) - Only got about 75% through it. Listened at "normal" speed instead of 2.0. But WOW this book is fucking good when it comes to learning Spanish.
@@ -330,14 +330,14 @@ Re-reading some good books in prep for a product launch
 1. May 31 [Options Trading Simplified](http://a.co/cOv7paP)
 1. June 5 [I Will Teach You To Be Rich](http://a.co/a7OHgaD) <- Meh, TLDR: Index funds and automatic contributions
 1. June 7 [🌟 Sleep Smarter](http://a.co/erJKrUC)
-1. June 11 [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
+1. June 11 [🌟🌟 Atomic Habits](http://a.co/bRGtlz8) <- Make or break ANY habit, with new and profound ways of approaching it
 1. June 15 [The Code of Trust](http://a.co/4kiSqrU)
 1. June 19 [New Geography of Jobs](http://a.co/8hJXcoM)
 1. June 21 [Dreamland](http://a.co/8VsbamT)
 1. June 30 [🌟 Why We Sleep](http://a.co/aD2wjAQ)
 1. July 5 [🌟 Inspired](http://a.co/2xq3p54)
 1. July 9 [The Lean Product Playbook](http://a.co/f7GO9Af)
-1. July 24 [🌟🌟 Skin in the game](http://a.co/iuJDB95)
+1. July 24 [🌟🌟 Skin in the game](http://a.co/iuJDB95) <- Learn everything there is to know about hidden asymmetries in life. Definitely a must-read.
 1. July 28 [The ADHD Effect on Marriage](http://a.co/f3a8ndH)
 1. Aug 2 [The Two Income Trap](http://a.co/cmmGftT)
 1. Aug 7 [🌟 The Power of Moments](http://a.co/cMMUg08)
