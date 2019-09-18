@@ -344,3 +344,4 @@ Re-reading some good books in prep for a product launch
 1. Aug 14 [The Proximity Principle](http://a.co/2kfb9aw)
 1. Aug 26 [🌟 Come As You Are](http://a.co/2KiDabq)
 1. Sept 5 [AI Superpowers](http://a.co/cyE8EfP)
+1. Sept 18 [🌟 UnSelling](http://a.co/h37NZS6)
