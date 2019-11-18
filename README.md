@@ -349,3 +349,4 @@ Re-reading some good books in prep for a product launch
 1. Oct 30 [The Burnout Generation](http://a.co/cLYI7vn)
 1. Nov 9 [🌟 That Will Never Work](http://a.co/dWszFqZ)
 1. Nov 13 [The Madness of Crowds](http://a.co/aPSgFgv)
+1. Nov 18 [Ca$hvertising](http://a.co/5WRpsaU) - fucking love this book
