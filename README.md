@@ -351,3 +351,4 @@ Re-reading some good books in prep for a product launch
 1. Nov 13 [The Madness of Crowds](http://a.co/aPSgFgv)
 1. Nov 18 [Ca$hvertising](http://a.co/5WRpsaU) - fucking love this book, 3rd through and still learning
 1. Nov 20 [The Endangered Customer](http://a.co/hqq5PAH)
+1. Nov 27 [🌟🌟 The Infinite Game](http://a.co/cB2eqRa)
