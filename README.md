@@ -4,6 +4,19 @@
 
 <br>
 
+## Top 10
+1.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+
+
 ### Note: 🌟 ones are favorites for the year; cream of the crop. (especially considering the books I read are already the best of the best)
 
 
@@ -351,6 +364,6 @@ Re-reading some good books in prep for a product launch
 1. Nov 13 [The Madness of Crowds](http://a.co/aPSgFgv)
 1. Nov 18 [Ca$hvertising](http://a.co/5WRpsaU) - fucking love this book, 3rd through and still learning
 1. Nov 20 [The Endangered Customer](http://a.co/hqq5PAH)
-1. Nov 27 [🌟🌟 The Infinite Game](http://a.co/cB2eqRa)
+1. Nov 27 [🌟🌟 The Infinite Game](http://a.co/cB2eqRa) <- Wow. Just wow. The mindset this books gives you. Unreal.
 1. Dec 1 [The Art of the Start 2.0](http://a.co/83vXPTx)
 1. Dec 3 [You Are The Placebo](http://a.co/28F4Eq2)
