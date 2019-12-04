@@ -4,17 +4,18 @@
 
 <br>
 
-## Top 10
-1.
-2.
-3.
-4.
-5.
-6.
-7.
-8.
-9.
-10.
+## Top 10 (In no particular order)
+1. [🌟🌟 Millionaire booklet by Grant Cardone](https://amzn.to/2Hw5yNX)
+2. [🌟🌟 Be obsessed or be average](https://amzn.to/2qsokhm)
+3. [🌟🌟 Skin in the game](http://a.co/iuJDB95)
+4. [🌟🌟 The Infinite Game](http://a.co/cB2eqRa)
+5. [🌟🌟 Unscripted](https://amzn.to/2GUb0Jr)
+6. [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
+7. [🌟🌟 The Inevitable](https://amzn.to/2IZqdhq)
+8. [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
+9. [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj)
+10. [🌟 When by Daniel Pink](https://amzn.to/2JhcDGl)
+
 
 
 ### Note: 🌟 ones are favorites for the year; cream of the crop. (especially considering the books I read are already the best of the best)
@@ -234,7 +235,7 @@
 1. Apr 3 - [Win at losing](https://amzn.to/2HA589C)
 1. Apr 11 - [the case against sugar](https://amzn.to/2qrna5G)
 1. Apr 17 - [🌟 Nail it then scale it](https://amzn.to/2JH8Pef)
-1. Aug 14 - [you are a badass at making money](https://amzn.to/2GTfHTX)
+1. Aug 14 - [You are a badass at making money](https://amzn.to/2GTfHTX)
 1. Sept 13 - [🌟 Brandwashed](https://amzn.to/2GXltny)
 1. Oct 5 - [so good they can’t ignore you](https://amzn.to/2EHHuVx)
 1. Oct 25 - [deep work](https://amzn.to/2JGjWnH)
