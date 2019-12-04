@@ -353,3 +353,4 @@ Re-reading some good books in prep for a product launch
 1. Nov 20 [The Endangered Customer](http://a.co/hqq5PAH)
 1. Nov 27 [🌟🌟 The Infinite Game](http://a.co/cB2eqRa)
 1. Dec 1 [The Art of the Start 2.0](http://a.co/83vXPTx)
+1. Dec 3 [You Are The Placebo](http://a.co/28F4Eq2)
