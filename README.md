@@ -326,7 +326,7 @@ Re-reading some good books in prep for a product launch
 1. Jan 14 [Bad With Money](https://www.amazon.com/Bad-Money-Imperfect-Financial-Together/dp/1501176331)
 1. Jan 15 [The Financial Diet](https://www.amazon.com/Financial-Diet-Total-Beginners-Getting/dp/1250176166)
 1. Jan 22 [The Total Money Makeover](https://www.amazon.com/Total-Money-Makeover-Classic-Financial/dp/1595555277)
-1. Jan 24 [🌟Rich Dad's Cashflow Quadrant](https://www.amazon.com/Rich-Dads-CASHFLOW-Quadrant-Financial/dp/1612680054)
+1. Jan 24 [🌟 Rich Dad's Cashflow Quadrant](https://www.amazon.com/Rich-Dads-CASHFLOW-Quadrant-Financial/dp/1612680054)
 1. Jan 25 [The Charisma Myth](https://www.amazon.com/Charisma-Myth-Science-Personal-Magnetism/dp/1591845947)
 1. Jan 29 [Everyday Millionaire](https://www.amazon.com/Everyday-Millionaires-Ordinary-Extraordinary-Wealth_and/dp/0977489523)
 1. Feb 3 [🌟 48 Laws of Power](https://www.amazon.com/48-Laws-Power-Robert-Greene/dp/0140280197)
@@ -356,7 +356,7 @@ Re-reading some good books in prep for a product launch
 1. Aug 2 [The Two Income Trap](http://a.co/cmmGftT)
 1. Aug 7 [🌟 The Power of Moments](http://a.co/cMMUg08)
 1. Aug 14 [The Proximity Principle](http://a.co/2kfb9aw)
-1. Aug 26 [🌟 Come As You Are](http://a.co/2KiDabq)
+1. Aug 26 [Come As You Are](http://a.co/2KiDabq)
 1. Sept 5 [AI Superpowers](http://a.co/cyE8EfP)
 1. Sept 18 [🌟 UnSelling](http://a.co/h37NZS6)
 1. Oct 11 [What Customers Crave](http://a.co/iVMb5mO)
@@ -368,3 +368,4 @@ Re-reading some good books in prep for a product launch
 1. Nov 27 [🌟🌟 The Infinite Game](http://a.co/cB2eqRa) <- Wow. Just wow. The mindset this books gives you. Unreal.
 1. Dec 1 [The Art of the Start 2.0](http://a.co/83vXPTx)
 1. Dec 3 [You Are The Placebo](http://a.co/28F4Eq2)
+1. Dec 6 [Dare To Lead](http://a.co/aUQIvUp)
