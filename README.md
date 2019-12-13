@@ -369,3 +369,4 @@ Re-reading some good books in prep for a product launch
 1. Dec 1 [The Art of the Start 2.0](http://a.co/83vXPTx)
 1. Dec 3 [You Are The Placebo](http://a.co/28F4Eq2)
 1. Dec 6 [Dare To Lead](http://a.co/aUQIvUp)
+1. Dec 12 [Can't Hurt Me](http://a.co/175HaR5)
