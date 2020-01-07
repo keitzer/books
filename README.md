@@ -376,4 +376,4 @@ Re-reading some good books in prep for a product launch
 # 2020
 ## Goal: Keeping the 50, but this time it'll be more travel and culture focused. 
 
-1. Jan 5 [Talking to Stranger](http://a.co/0sGqOfB)
+1. Jan 5 [Talking to Strangers](http://a.co/0sGqOfB)
