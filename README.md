@@ -372,3 +372,8 @@ Re-reading some good books in prep for a product launch
 1. Dec 12 [Can't Hurt Me](http://a.co/175HaR5)
 1. Dec 16 [What You Do Is Who You Are](http://a.co/89fjoaW)
 1. Dec 30 [Over The Top](http://a.co/66FL0nr)
+
+# 2020
+## Goal: Keeping the 50, but this time it'll be more travel and culture focused. 
+
+1. Jan 5 [Talking to Stranger](http://a.co/0sGqOfB)
