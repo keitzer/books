@@ -377,3 +377,4 @@ Re-reading some good books in prep for a product launch
 ## Goal: Keeping the 50, but this time it'll be more travel and culture focused. 
 
 1. Jan 5 [Talking to Strangers](http://a.co/0sGqOfB)
+1. Jan 9 [Zen and the Art of Motorcycle Maintenance](http://a.co/czD5FpT)
