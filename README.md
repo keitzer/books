@@ -379,3 +379,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 5 [Talking to Strangers](http://a.co/0sGqOfB)
 1. Jan 9 [Zen and the Art of Motorcycle Maintenance](http://a.co/czD5FpT)
 1. Jan 10 [The Minimalist Way](http://a.co/5W7VYXg)
+1. Jan 15 [Quit like a Millionaire](http://a.co/j23WR7h)
