@@ -380,3 +380,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 9 [Zen and the Art of Motorcycle Maintenance](http://a.co/czD5FpT)
 1. Jan 10 [The Minimalist Way](http://a.co/5W7VYXg)
 1. Jan 15 [Quit like a Millionaire](http://a.co/j23WR7h)
+1. Jan 16 [How to Travel the World on $50 a day](http://a.co/7rDkwt2)
