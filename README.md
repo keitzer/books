@@ -382,3 +382,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 15 [Quit like a Millionaire](http://a.co/j23WR7h)
 1. Jan 16 [How to Travel the World on $50 a day](http://a.co/7rDkwt2)
 1. Jan 22 [Into The Wild](http://a.co/38QjwnD)
+1. Jan 23 [Scam Me If You Can](http://a.co/fjfrdDz)
