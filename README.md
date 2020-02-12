@@ -385,3 +385,4 @@ Re-reading some good books in prep for a product launch
 1. Jan 23 [Scam Me If You Can](http://a.co/fjfrdDz)
 1. Jan 24 [Into Thin Air](http://a.co/dLY2rIv)
 1. Jan 27 [Food: A Cultural Culinary History](http://a.co/3lkJr7Z)
+1. Feb 11 [The Story of Human Language](http://a.co/dFPnZ8S)
