@@ -2,7 +2,7 @@
 
 ## All books in this list are linked to Amazon for easy purchase with just 1 click (NOT affiliate links. Amazon shut down my account lol) :)
 
-<br>
+
 
 ## Top 10 (In no particular order)
 1. [🌟🌟 Millionaire booklet by Grant Cardone](https://amzn.to/2Hw5yNX)
@@ -22,19 +22,19 @@
 
 
 ### Also: 🌟🌟 are considered… well… the “11 out of 10” so to speak. Should you see any of these on the list, read them immediately. If you already have, I’m sure you agree with my opinion.
-<br>
+
 
 ### This list also gets updated as I read books… which means this is a fluid / living document.
 ### Check back every few weeks to see the new books (the bottom of the list) :)
-<br>
+
 
 ### Feel free to suggest ones to me: [alex@alexogorek.com](mailto:alex@alexogorek.com)
 
-<br>
+
 
 ### If you want to get your first few books from Audible, follow this link: [Audible Free Trial 2 Free Audiobooks](https://www.amazon.com/Audible-Free-Trial-Digital-Membership/dp/B00NB86OYE/?ref_=assoc_tag_ph_1485906643682&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=compass076-20&linkId=ca1d9d231d4d6bfbfcef100ac602d8ec)
 
-<br>
+
 
 # 2015
 ## Goal: Read/Listen to 50 books for the year (aka, about 1 book per week on average). Actual: 70
@@ -202,7 +202,7 @@
 1. Nov 4 - [🌟 Sell or be sold](https://amzn.to/2GXEtpZ)
 1. Nov 4 - [No one understands you and what to do about it](https://amzn.to/2vcmpTG)
  
-Nov 5 - [Be Obsessed or Be Average](https://amzn.to/2qsokhm) (yes, again. It’s that good, but not going to count it the 2nd time)]()
+Nov 5 - Be Obsessed or Be Average (yes, again. It’s that good, but not going to count it the 2nd time)]()
   
 87. Nov 7 - [Alibaba](https://amzn.to/2EGa5uv)
 1. Nov 9 - [🌟 The Startup J curve](https://amzn.to/2GUZphg)
