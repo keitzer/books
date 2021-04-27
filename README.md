@@ -201,10 +201,10 @@
 1. Nov 2 - [Close that sale](https://amzn.to/2Hw6hPb)
 1. Nov 4 - [🌟 Sell or be sold](https://amzn.to/2GXEtpZ)
 1. Nov 4 - [No one understands you and what to do about it](https://amzn.to/2vcmpTG)
-  <br />
-  Nov 5 - [Be Obsessed or Be Average](https://amzn.to/2qsokhm) (yes, again. It’s that good, but not going to count it the 2nd time)]()
-  <br />
-1. Nov 7 - [Alibaba](https://amzn.to/2EGa5uv)
+ 
+Nov 5 - [Be Obsessed or Be Average](https://amzn.to/2qsokhm) (yes, again. It’s that good, but not going to count it the 2nd time)]()
+  
+87. Nov 7 - [Alibaba](https://amzn.to/2EGa5uv)
 1. Nov 9 - [🌟 The Startup J curve](https://amzn.to/2GUZphg)
 1. Nov 14 - [How to fail at almost everything and still win big](https://amzn.to/2qsSMYD)
 1. Nov 23 - [#AskGaryVee](https://amzn.to/2JHJHDV)
@@ -278,10 +278,10 @@
 1. Apr 10 - [Investing for Beginners by Walter Wayne](https://amzn.to/2JClM9b)
 1. Apr 12 - [Make: Bootstrappers handbook](https://makebook.io/)
 1. Apr 17 - [🌟 Never Lose A Customer Again](https://amzn.to/2qEHykR)
-<br />
+
 Re-reading some good books in prep for a product launch
-<br />
-1. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
+
+21. Apr 18 - [Millionaire Booklet](https://amzn.to/2Hw5yNX)
 1. Apr 19 - [1-Page Marketing Plan](https://amzn.to/2GWl6cW)
 1. Apr 20 - [Building a Story Brand](https://amzn.to/2qviAmT)
 1. Apr 24 - [Ca$hvertising](https://amzn.to/2GUmktp)
