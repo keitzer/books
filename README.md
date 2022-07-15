@@ -1,6 +1,7 @@
 # Alex Ogorek's Book List
 
-## All books in this list are linked to Amazon for easy purchase with just 1 click (NOT affiliate links. Amazon shut down my account lol) :)
+## All books in this list are linked to Amazon for easy purchase with just 1 click.
+Quick disclaimer that some of these are affiliate links meaning I may benefit from the purchase of a book via the link on this webiste.
 
 
 
@@ -14,7 +15,7 @@
 7. [🌟🌟 The Inevitable](https://amzn.to/2IZqdhq)
 8. [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
 9. [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj)
-10. [🌟 When by Daniel Pink](https://amzn.to/2JhcDGl)
+10. [🌟🌟 The Art of Impossible](https://amzn.to/3IHXZDt)
 
 
 
@@ -387,3 +388,10 @@ Re-reading some good books in prep for a product launch
 1. Jan 27 [Food: A Cultural Culinary History](http://a.co/3lkJr7Z)
 1. Feb 11 [The Story of Human Language](http://a.co/dFPnZ8S)
 1. Apr 7 [Tribe](https://a.co/iCGeFQI)
+
+# 2022
+## Goal: Based on what happened in 2020, I just wanna get back into the swing of things
+1. May 24 [Homeless to Billionaire](https://amzn.to/3PaCaz1)
+1. June 16 [$100M Offers](https://amzn.to/3PAOU1P)
+1. June 22 [🌟 Think Again](https://amzn.to/3IIaTBJ)
+1. July 3 [🌟🌟 The Art of Impossible](https://amzn.to/3IHXZDt)
