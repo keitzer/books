@@ -5,17 +5,17 @@ Quick disclaimer that some of these are affiliate links meaning I may benefit fr
 
 
 
-## Top 10 (In no particular order)
-1. [🌟🌟 Millionaire booklet by Grant Cardone](https://amzn.to/2Hw5yNX)
-2. [🌟🌟 Be obsessed or be average](https://amzn.to/2qsokhm)
-3. [🌟🌟 Skin in the game](http://a.co/iuJDB95)
-4. [🌟🌟 The Infinite Game](http://a.co/cB2eqRa)
-5. [🌟🌟 Unscripted](https://amzn.to/2GUb0Jr)
-6. [🌟🌟 Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
-7. [🌟🌟 The Inevitable](https://amzn.to/2IZqdhq)
-8. [🌟🌟 Atomic Habits](http://a.co/bRGtlz8)
-9. [🌟🌟 Mastering Fear](https://amzn.to/2xvVxMj)
-10. [🌟🌟 The Art of Impossible](https://amzn.to/3IHXZDt)
+## Top 10 (All 🌟🌟) (In no particular order)
+1. [Millionaire booklet by Grant Cardone](https://amzn.to/2Hw5yNX)
+2. [Be obsessed or be average](https://amzn.to/2qsokhm)
+3. [Skin in the game](http://a.co/iuJDB95)
+4. [The Infinite Game](http://a.co/cB2eqRa)
+5. [Unscripted](https://amzn.to/2GUb0Jr)
+6. [Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
+7. [The Inevitable](https://amzn.to/2IZqdhq)
+8. [Atomic Habits](http://a.co/bRGtlz8)
+9. [Mastering Fear](https://amzn.to/2xvVxMj)
+10. [The Art of Impossible](https://amzn.to/3IHXZDt)
 
 
 
@@ -26,14 +26,14 @@ Quick disclaimer that some of these are affiliate links meaning I may benefit fr
 
 
 ### This list also gets updated as I read books… which means this is a fluid / living document.
-### Check back every few weeks to see the new books (the bottom of the list) :)
+### Check back every few weeks to see the new books :)
 
 
 ### Feel free to suggest ones to me: [alex@alexogorek.com](mailto:alex@alexogorek.com)
 
 
 
-### If you want to get your first few books from Audible, follow this link: [Audible Free Trial 2 Free Audiobooks](https://www.amazon.com/Audible-Free-Trial-Digital-Membership/dp/B00NB86OYE/?ref_=assoc_tag_ph_1485906643682&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=compass076-20&linkId=ca1d9d231d4d6bfbfcef100ac602d8ec)
+### If you want to get your first few books from Audible, follow this link: [Audible Free Trial 3 Free Months](https://amzn.to/3uOgxwo)
 
 
 
