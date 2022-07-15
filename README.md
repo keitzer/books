@@ -6,15 +6,15 @@ Quick disclaimer that some of these are affiliate links meaning I may benefit fr
 
 
 ## Top 10 (All 🌟🌟) (In no particular order)
-1. [Millionaire booklet by Grant Cardone](https://amzn.to/2Hw5yNX)
-2. [Be obsessed or be average](https://amzn.to/2qsokhm)
-3. [Skin in the game](http://a.co/iuJDB95)
-4. [The Infinite Game](http://a.co/cB2eqRa)
-5. [Unscripted](https://amzn.to/2GUb0Jr)
-6. [Nutrition Made Clear](https://www.amazon.com/Nutrition-Made-Clear/dp/B00DTO5626)
-7. [The Inevitable](https://amzn.to/2IZqdhq)
-8. [Atomic Habits](http://a.co/bRGtlz8)
-9. [Mastering Fear](https://amzn.to/2xvVxMj)
+1. [Millionaire booklet by Grant Cardone](https://amzn.to/3PaCWfp)
+2. [Be obsessed or be average](https://amzn.to/3RFinsY)
+3. [Skin in the game](https://amzn.to/3z7Z4RW)
+4. [The Infinite Game](https://amzn.to/3RC6uEj)
+5. [Unscripted](https://amzn.to/3aGVfd3)
+6. [Nutrition Made Clear](https://amzn.to/3Ps6chm)
+7. [The Inevitable](https://amzn.to/3Pv448x)
+8. [Atomic Habits](https://amzn.to/3IFOAfI)
+9. [Mastering Fear](https://amzn.to/3IHZ1iP)
 10. [The Art of Impossible](https://amzn.to/3IHXZDt)
 
 
