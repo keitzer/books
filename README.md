@@ -395,3 +395,9 @@ Re-reading some good books in prep for a product launch
 1. June 16 [$100M Offers](https://amzn.to/3PAOU1P)
 1. June 22 [🌟 Think Again](https://amzn.to/3IIaTBJ)
 1. July 3 [🌟🌟 The Art of Impossible](https://amzn.to/3IHXZDt)
+
+# 2023
+## Goal: Same as last year, just enjoy listening / reading more
+1. Jan 25 [🌟 You Said This Would Be Fun](https://a.co/d/e1zaDoN)
+1. Jan 30 [Think Like a Game Designer](https://a.co/d/503uYFt)
+1. Feb 2 [Breaking Up with Sugar](https://a.co/d/i8nC5Em)
